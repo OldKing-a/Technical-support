@@ -1,8 +1,4 @@
 # Technical-support
-Moving store is committed to the promotion of professional sports goods, so that people can buy professional sports goods in daily life with high efficiency and quality. We provide users with professional and high-quality sports equipment, so that users can get better protection in the movement and achieve better sports results.
-
-Our app displays a complete range of sports supplies, including table tennis supplies, badminton supplies, tennis supplies, outdoor sports supplies, sports shoes, basketball, sports protection, roller skates and other sports supplies and sports equipment. These kinds of various, complete categories of sporting goods can meet the user's selection and procurement. At the same time, our app makes a very detailed classification of these sports products, which helps users to quickly find the sports equipment they want to buy. Our app also offers special activities for users to buy the most professional sports equipment at a more favorable price.
-
-Mobile store - to give you the most professional sports equipment!
-
-If you have any questions, please contact us through the following ways:karpdz@163.com
+Our app is dedicated to facilitating People's Daily life, so that people can purchase the daily necessities and kitchen supplies they need efficiently and high-quality in daily life.
+      Our app displays a full range of daily necessities and kitchen supplies, including kitchen accessories, POTS and pans, knives, tableware, small appliances, induction cooker, household supplies, drinking water supplies, home textiles, beauty products, cleaning supplies, healthy food and other necessities. These various, the category complete life necessity may satisfy the user's choice and the purchase. At the same time, our app makes a very detailed classification of these products, which helps users quickly find the daily necessities and kitchen supplies they want to buy. Our app also has discount activities, so users can buy the best quality goods at a cheaper price.
+If you have any questions, please contact us at xiaonai123gou@sina.com
