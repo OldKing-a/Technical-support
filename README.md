@@ -1,5 +1,5 @@
 # Technical-support
-Ya hui takeaway, a professional food takeaway ordering platform!
-Ya hui takeaway is dedicated to facilitating People's Daily life, so that people can buy delicious meals they need efficiently and high-quality in daily life. It allows people to eat a variety of delicious meals in their daily life.
-Our app displays a wide variety of delicious food, including delicious mixed rice, single set meal, Fried rice, lufu, snacks, sweet soup, drinks and other delicious food. These various, the category complete life necessity may satisfy the user's choice and the purchase. At the same time, our app makes a very detailed classification of these foods, which is helpful for users to quickly find the delicious food they want to eat. Our app also offers special activities, so users can buy the most delicious food at a lower price.
-If you have any questions, please contact us at schornakmorin@gmail.com
+Tiantian toy house is dedicated to promoting fun toys for children, so that people can buy fun toys for their children efficiently and effectively in their daily life.
+Our app displays a full range of children's toys, including sports toys, educational toys, music toys, remote control toys and other children's toys. These complete range of children's toys can meet the user's selection and purchase. Our app makes a very detailed classification of these children's toys, which helps users to find the toys they want to buy quickly.
+Come to Tiantian toy house to give your children the most interesting childhood!
+If you have any questions, please contact us at wenpinxuan1@163.com
