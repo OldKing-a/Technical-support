@@ -1,4 +1,5 @@
 # Technical-support
-Merle online is committed to the promotion of beauty products, so that people can buy high-quality beauty products efficiently and high-quality in daily life. We provide safe and effective cosmetic products for users, so that users can have more perfect skin and more beautiful image.
-Our app shows a full range of beauty products, including nourishing skin care, essence eye cream, sunscreen, popular mask, fragrance, men's skin care products, beauty tools, personal care products and other beauty products. These various beauty cosmetics can meet the user's choice and purchase. At the same time, our app makes a very detailed classification of these beauty products, helping users quickly find the beauty products they want to buy. Our app has discount activities, users can buy the most perfect beauty products at a more favorable price.
-If you have any questions, please contact us at KaylynnWhoopi94@gmail.com
+Our App is dedicated to facilitating People's Daily life, so that people can purchase the tableware and kitchenware they need with high efficiency and quality in their daily life.
+Our app shows a variety of tableware and tableware, including bowls, plates, metal spoons, wooden spoons, snow pans, spoons, tablecloths and so on. These various, the category complete kitchenware and the tableware may satisfy the user's choice and the purchase. At the same time, our app makes a very detailed classification of these products, which helps users quickly find the kitchen utensils and tableware they want to buy.
+We make your life better
+If you have any questions, please contact us at wenpinxuan1@163.com
